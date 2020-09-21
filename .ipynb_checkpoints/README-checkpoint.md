@@ -31,11 +31,13 @@ A summary of the 2020-2021 lesson plan is given in the table below.  As the week
 11 Jan 2021  | 13      | 13 | Jesus' Baptism, the calling of the Apostles
 18 Jan 2021  | MLK Day | - |
 25 Jan 2021  | 14      | 14 | Multiplication of the loaves
+1 Feb 2021   | Mass!  | - |
 8 Feb 2021   | 15      | 15 & 16 | 2-4 healing miracles | - | [Jesus heals a paralyzed man whose friends have lowered him through the roof, 2 min.](https://www.youtube.com/watch?v=hJn7BYAMPmM) 
 15 Feb 2021  ! President's Day | - |
 22 Feb 2021  | 16      | 17 & 25 | Passion & Resurrection (movie)
+1 Mar 2021   | Mass!   |
 8 Mar 2021   | 17      | 17 & 25, 18 | Jesus' entry into Jerusalem
-15 Mar 2021  | Mass!   | -
+15 Mar 2021  | Day off  | -
 22 Mar 2021  | 18      | 18 | The last supper
 29 Mar 2021  | 19      | 19 | Passion/Easter
 5 Apr 2021   | Day off (Easter) | -
