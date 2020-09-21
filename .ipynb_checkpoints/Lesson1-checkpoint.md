@@ -17,7 +17,7 @@
 ## Homeschool/missed class plan
 - Read, watch, or tell: The Story of Creation.  If you choose to watch, here's a couple of links, both about 20-30 minutes:
   - [Formed.org: The Animated Bible Series Episode 1](https://watch.formed.org/the-animated-bible-series-the-creation): This covers the stories for lessons 1 and 2 EXCEPT that you will need to emphasize that God promised to send us a savior (Lesson 2).
-  - [Formed.org: Brother Francis: Born into the kingdom: The miracle of baptism](https://watch.formed.org/brother-francis-1/season:1/videos/born-into-the-kingdom-the-miracle-of-baptism)
+  - [Formed.org: Brother Francis: Born into the kingdom: The miracle of baptism](https://watch.formed.org/brother-francis-1/season:1/videos/born-into-the-kingdom-the-miracle-of-baptism): This covers the stories for lessons 1 and 2.
 - Read: Chapter 1
 - Practice and Pray: The Sign of the Cross and the Our Father
   - With a class, I have the kids repeat the Our Father after me.

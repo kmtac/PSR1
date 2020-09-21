@@ -5,6 +5,8 @@ The themes for this year are God's love for us and our response to Him.  We lear
 Text: **Our Heavenly Father** textbook and activity book, 3rd edition, Ignatius Press.
 Required Supplement: Bible stories.  These can be from a children's Bible, videos of Bible stories, or parents telling Bible stories to their children.  In class, I usually use **A First Bible Story Book**, stories retold by Mary Hoffman, Tyndale House Publishers, Inc.  I supplement this with videos and other children's Bibles.  There are plenty of other good children's Bibles around.  Especially for homeschool students, I'm providing links to online videos of the Bible stories we're covering as an alternative to reading the stories.
 
+Homeschool students lesson checksheets: [pdf](HomeschoolChecksheet.pdf) [xlsx](HomeschoolChecksheet.xlsx) Turn in the checksheets at the end of each semester (December and May) OR email me each week saying you've completed the lesson OR propose another way to document your child's work.
+
 A summary of the 2020-2021 lesson plan is given in the table below.  As the weeks go by, the table will continue to be filled in.  In addition, each lesson will link to its own web page.  You can expect the pages to appear by the day after class (with the exception of the first lesson, which will appear by Sep. 20.)  If you are homeschooling, you will receive an email each week which includes a link to the lesson's web page as well as the content of the web page in the email itself.
 ``
 ## Summary of Lesson Plans
