@@ -36,7 +36,7 @@
   - Continue to notice things to thank God for.  This is a continuing theme for this semester.  See the [Continuing Activities](ContinuingActivities) section below.
   - Optional.  Decorate or bring flowers to a picture or statue of Jesus.  Or visit Jesus in the Blessed Sacrament.  See the [Continuing Activities](ContinuingActivities) section below. 
   
-### <a href=ContinuingActivities> Continuing activities for Developing a relationship with God </a>
+### <a name=ContinuingActivities> Continuing activities for Developing a relationship with God </a>
 - Have your child list/discuss things they'd like to thank GodNot for.  Some ideas:
     - Take a walk and notice things to thank God for
     - Prayers at meals, bedtime, morning, ...
