@@ -33,8 +33,8 @@
      - Tell your child that heaven will be even better than any of these things, and that it will go on forever.
      - Discuss how on earth things sometimes go wrong.  Tell them it won't be that way in heaven.
   - Point 2: Practice the Sign of the Cross.  Tell your child that when we make the Sign of the Cross, we remember how Jesus opened the gates of heaven for us.
-  - Continue to notice things to thank God for.  This is a continuing theme for this semester.  See the [Continuing Activities](ContinuingActivities) section below.
-  - Optional.  Decorate or bring flowers to a picture or statue of Jesus.  Or visit Jesus in the Blessed Sacrament.  See the [Continuing Activities](ContinuingActivities) section below. 
+  - Continue to notice things to thank God for.  This is a continuing theme for this semester.  See the [Continuing Activities](#ContinuingActivities) section below.
+  - Optional.  Decorate or bring flowers to a picture or statue of Jesus.  Or visit Jesus in the Blessed Sacrament.  See the [Continuing Activities](#ContinuingActivities) section below. 
   
 ### <a name=ContinuingActivities> Continuing activities for Developing a relationship with God </a>
 - Have your child list/discuss things they'd like to thank GodNot for.  Some ideas:
