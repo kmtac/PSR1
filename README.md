@@ -14,7 +14,7 @@ A summary of the 2020-2021 lesson plan is given in the table below.  As the week
 |Date        | Lesson # | Book Chapter(s) | Story | Link to Picture(s) | Links to Video(s) | Comments|
 -------------|---------|-----------------|-------|--------------------|-------------------|------------|
 [14 Sep 2020](Lesson1.md)  | [1](Lesson1.md) |  1  | Creation | - |[Formed.org: The Animated Bible Series Episode 1](https://watch.formed.org/the-animated-bible-series-the-creation) | This covers the stories for lessons 1 and 2 EXCEPT that you will need to emphasize that God promised to send us a savior.| 
-21 Sep 2020  | 2       |  2  | Adam & Eve and the fall | - |[Formed.org: Brother Francis: Born into the kingdom: The miracle of baptism](https://watch.formed.org/brother-francis-1/season:1/videos/born-into-the-kingdom-the-miracle-of-baptism) | Be sure to emphasize that God promised to send us a Savior!  The Brother Francis video covers the stories for lessons 1 and 2, including the emphasis on the Savior|
+[21 Sep 2020](Lesson2.md) | [2](Lesson2.md)       |  2  | Adam & Eve and the fall | - |[Formed.org: Brother Francis: Born into the kingdom: The miracle of baptism](https://watch.formed.org/brother-francis-1/season:1/videos/born-into-the-kingdom-the-miracle-of-baptism) | Be sure to emphasize that God promised to send us a Savior!  The Brother Francis video covers the stories for lessons 1 and 2, including the emphasis on the Savior|
 28 Sep 2020  | 3       |  3  | Noah & the flood 
 5 Oct 2020   | Mass!   |  -  |
 12 Oct 2020  | 4       | 4   | Abraham and Isaac
