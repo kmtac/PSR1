@@ -27,17 +27,18 @@
   - Practice genuflecting.  
   - Optional: Do Activity Book p. 3 if you didn't do it last week.
 - Developing a relationship with God:
-  - Point 1: Heaven is our true home.
-     - Ask your child about times when they've been happy.  Discuss them.  List the best places, tastes, smells, and things to do.  Ask your cild to list the best memories or times they've had. 
+   - Point 1: Heaven is our true home.
+     - Ask your child about times when they've been happy.  Discuss them.  List the best places, tastes, smells, and things to do.  Ask your child to list the best memories or times they've had. 
      - Optional: Enjoy a small treat.  Focus on the treat (smelling it, focuing on the taste, ...).
      - Tell your child that heaven will be even better than any of these things, and that it will go on forever.
      - Discuss how on earth things sometimes go wrong.  Tell them it won't be that way in heaven.
   - Point 2: Practice the Sign of the Cross.  Tell your child that when we make the Sign of the Cross, we remember how Jesus opened the gates of heaven for us.
   - Continue to notice things to thank God for.  This is a continuing theme for this semester.  See the [Continuing Activities](#ContinuingActivities) section below.
   - Optional.  Decorate or bring flowers to a picture or statue of Jesus.  Or visit Jesus in the Blessed Sacrament.  See the [Continuing Activities](#ContinuingActivities) section below. 
+
   
 ### <a name="ContinuingActivities"> Continuing activities for Developing a relationship with God </a>
-- Have your child list/discuss things they'd like to thank GodNot for.  Some ideas:
+- Have your child list/discuss things they'd like to thank God for.  Some ideas:
     - Take a walk and notice things to thank God for
     - Prayers at meals, bedtime, morning, ...
     - Play a game.  Before each turn, each player lists something they'd like to thank God for.  They get as much help as they need to come up with something.

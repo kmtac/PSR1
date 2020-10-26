@@ -1,0 +1,115 @@
+# Lesson 4
+- Story: [Abraham, Sarah, and Isaac](https://vimeo.com/44930545)
+   - I tell the story from Abraham and Sarah leaving their home to Isaac's birth to the sacrifice of the ram in place of Isaac.
+   - The linked video just tells the first part, Abraham and Sarah leaving their home and Isaac's birth.
+   - Either is fine.  The Activity Book p. 26 asks your child do draw God providing a ram in place of Isaac.  It's fine to skip this page if you didn't cover that part of the story.
+- Book chapter: 4
+- Activity book pages: 13-16, 26
+- Prayers:
+  - The Sign of the Cross
+     - Note you make a cross with your arm
+     - Jesus is the Son
+     - This reminds us how Jesus opened the gates of heaven for us.
+  - The Our Father
+    - Kids repeat after an adult
+    - Focus: "Our Father": 
+      - God is the father of everyone!  Those in Berea, Columbia Station, Olmsted Falls, Sandusky, Michigan, Texas, ...
+      - God is in heaven.  
+  - Genuflecting
+  - Talking to God in your own words
+  - Gratefulness: List things you would like to thank God for.  Go on a walk and notice things to thank God for.
+  - Visit Jesus in the Chapel to say "Hi!" 
+  
+## Homeschool/missed class plan
+- Read, watch, or tell: Abraham, Sarah, and Isaac.  If you choose to watch, here's a [link to a 4-minute video](https://vimeo.com/44930545)
+- Read: Chapter 4
+- Practice and Pray: The Sign of the Cross, the Our Father, and genuflecting
+  - Our Father: 
+      - Review the first phrase: "Our Father"  (God is everyone's Father)
+      - Go over the second phrase: "Who art in Heaven": Discuss heaven.
+      - Go over the third phrase: "Hallowed be thy name"
+        - "Thy" is another way of saying "your."
+        - God's name is holy.  Holy is not really a first-grader-friendly concept.  
+          - I teach them the words -- "Hallowed by thy name" means "God's name is holy."  
+          - I also teach them that we always say God's name in a nice way.  
+  - Practice genuflecting.  
+- Developing a relationship with God:
+  - Point 1: God created us with a body and soul.
+  - Do activity book p. 14, The Order of Creation
+    - Rock - not alive
+    - Plants - alive
+    - Animals - alive, have a body, can be trained
+    - People - alive, have a body and soul.  Souls help us to think, love, and choose.
+  - You cannot see your soul.  
+  - We are made in the image and likeness of God.
+- Point 2: God wants us to know, love, and serve him so that we may be with Him in heaven.
+  - God wants us to take care of our body and take care of our soul.
+  - Activity 1: List ways to care for our body.  Then list ways to care for our souls.
+  - Optional. Activity 2: Charades: Caring for our body and for our soul.
+- Point 3: God gave us guardian angels.
+  - Look at the picture of Tobiah and the archangel Raphael (p.18 of book)
+  - Discuss: When might you ask your guardian angel to help you follow God?
+- Point 4: God gave us senses so that we can experience and enjoy creation
+  - Option 1: Do p. 13 of the activity book.
+  - Option 1: Make an "Enjoy creation" book
+     - Use 1 sheet of plain paper or light-colored construction paper
+        - Cut in half the long way (get two 4.25 x 11 pieces)
+        - Fold each sheet in half.  Tape the edges or staple to make a book.
+         - Front: "Enjoy creation"
+         - Pages: "See", "hear", "Smell", "Taste", "Touch", "The end"
+         - Draw something you like to see, hear, smell, etc., on the appropriate page.
+ 
+  - Continue to notice things to thank God for.  This is a continuing theme for this semester.  
+  - Optional.  Do one of the [Continuing Activities](#ContinuingActivities) below. 
+  
+### <a name="ContinuingActivities"> Continuing activities for Developing a relationship with God </a>
+- Have your child list/discuss things they'd like to thank God for.  Some ideas:
+    - Take a walk and notice things to thank God for
+    - Prayers at meals, bedtime, morning, ...
+    - Play a game.  Before each turn, each player lists something they'd like to thank God for.  They get as much help as they need to come up with something.
+ - Optional. Pick flowers and arrange them in a vase.  Put near a statue or picture of Jesus.  (Tends to be a fovorite activity in class.)
+ - Optional. Make a short visit to Jesus in the tabernacle -- a couple minutes are fine.  I think even a few minute visit can really help your child develop a relationship with Jesus, but I realize that this may not be as easy for homeschool families.  Perhaps you might be able to do this occasionally, either now or after a coronavirus vaccine has been developed.  
+    - Near or in Berea, St. Adalbert has Eucharistic Adoration from 9:00 to 6:30pm Tuesdays.  St. Mary of the Falls has Eucharistic Adoration from 7-8pm Tuesdays.  (Based on my experience, St. Mary of the Falls is as good about masking as St. Mary, Berea: Everyone in the church is wearing a mask.  St. Adalbert, from my very limited pandemic experience, isn't as good: In the pandemic version of a "full" church, you might have one or two people not wearing masks.  But I wouldn't expect St. Adalbert to have many people before about 5pm on Tuesdays.) 
+  
+
+
+## In-class plan  
+- As the kids come in ... Review: Noah's Ark (workbook p. 25 or craft)
+- Opening prayer: 
+  - Go over "Our Father": God is the father of Jesus.  God is everyone's father, He has adopted us all as His children.
+  - "Who art is heaven": God is in heaven
+  - Hallowed be thy name: God's name is holy so we say it in a nice way.
+    - "Thy": Your
+     - God's name is holy.  Holy is not really a first-grader-friendly concept.  
+          - I teach them the words -- "Hallowed by thy name" means "God's name is holy."  
+          - I also teach them that we always say God's name in a nice way.  
+- Point 1: You have a body and a soul
+  - **Do together -- book p. 14, The Order of Creation**
+    - Rock - not alive
+    - Plants - alive
+    - Animals - alive, have a body, can be trained
+    - People - alive, have a body and soul.  Souls help us to think, love, and choose.
+  - You cannot see your soul.  
+  - We are made in the image and likeness of God.
+- Point 2: God wants us to know, love, and serve him so that we may be with Him in heaven.
+  - God wants us to take care of our body and take care of our soul.
+  - **Activity 1: List ways to care for our body.  Then list ways to care for our souls.**
+  - **Activity 2: Charades: Caring for our body and for our soul.**
+- Point 3: God gave us guardian angels.
+  - **Look at the picture of Tobiah and the archangel Raphael (p.18 of book)**
+  - **Ask: When might you ask your guardian angel to help you follow God?**
+- Visit the chapel.
+- Point 4: God gave us senses so that we can experience and enjoy creation
+  - ** Activity: Make an "Enjoy creation" book**
+     - Front: Enjoy creation
+     - Pages: See, hear, smell, taste, touch, The end
+- End: Goal-ball, baseball.  Also, color in p. 16 (show your guardian angel helping you) or 12 (color an angel) of the workbook.
+  - What is one way you can care for your body?
+  - What is one way you can care for your soul?
+  - What is one thing you would like to thank God for?
+  - What is one thing you like to see? hear? smell? touch? taste?
+  - When might you ask your guardian angel for help?
+  - Whose Father is God?
+  - Is God the Father of all people?
+  - How do we say God's name?
+  

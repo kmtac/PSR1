@@ -15,9 +15,9 @@ A summary of the 2020-2021 lesson plan is given in the table below.  As the week
 -------------|---------|-----------------|-------|--------------------|-------------------|------------|
 [14 Sep 2020](Lesson1.md)  | [1](Lesson1.md) |  1  | Creation | - |[Formed.org: The Animated Bible Series Episode 1](https://watch.formed.org/the-animated-bible-series-the-creation) | This covers the stories for lessons 1 and 2 EXCEPT that you will need to emphasize that God promised to send us a savior.| 
 [21 Sep 2020](Lesson2.md) | [2](Lesson2.md)       |  2  | Adam & Eve and the fall | - |[Formed.org: Brother Francis: Born into the kingdom: The miracle of baptism](https://watch.formed.org/brother-francis-1/season:1/videos/born-into-the-kingdom-the-miracle-of-baptism) | Be sure to emphasize that God promised to send us a Savior!  The Brother Francis video covers the stories for lessons 1 and 2, including the emphasis on the Savior|
-28 Sep 2020  | 3       |  3  | Noah & the flood 
+28 Sep 2020  | 3       |  3  | Noah & the flood | - | [Noah and the Flood, 4min](https://www.youtube.com/watch?v=qzYjy6lhRag)
 5 Oct 2020   | Mass!   |  -  |
-12 Oct 2020  | 4       | 4   | Abraham and Isaac
+12 Oct 2020  | 4       | 4   | Abraham, Sarah, and Isaac | - | [Abraham, Sarah, and Isaac](https://vimeo.com/44930545)
 19 Oct 2020  | 5       | 5 & 6 | Joseph, his brothers, and the great famine in Egypt
 26 Oct 2020  | 6       | 27 | St. Patrick | - |[St. Patrick, Saints and Heroes collection on Formed.org, about 25 min.](https://watch.formed.org/the-saints-and-heroes-collection/season:1/videos/patrick-brave-shepherd-of-the-emerald-isle) AND (optional) [Halloween/All Saints Day explained with a cheesy Lego animation, about 6 min](https://www.youtube.com/watch?v=Oy66_pgeORA) | Discuss saints before All Hallow's Eve and All Saints day.  Formed has a second children's video on St. Patrick in the Cathoilc Heroes of the Faith collection.  I like the linked Saints & Heroes collection video better for first graders becasue it has a lighter tone.  First graders are at the very lower end of recommended age for the other videos.
 2 Nov 2020   | 7       | 7 & 8 | Moses | 
