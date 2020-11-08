@@ -21,7 +21,7 @@ A summary of the 2020-2021 lesson plan is given in the table below.  As the week
 [19 Oct 2020](Lesson5.md)  | [5](Lesson5.md)       | 5 & 6 | Joseph, his brothers, and the great famine in Egypt | - | [Joseph](https://watch.formed.org/joseph-beloved-son-rejected-slave)
 [26 Oct 2020](Lesson6.md)  | [6](Lesson6.md)       | 27 | St. Patrick | - |[St. Patrick, Saints and Heroes collection on Formed.org, about 25 min.](https://watch.formed.org/the-saints-and-heroes-collection/season:1/videos/patrick-brave-shepherd-of-the-emerald-isle) AND (optional) [Halloween/All Saints Day explained with a cheesy Lego animation, about 6 min](https://www.youtube.com/watch?v=Oy66_pgeORA) | Discuss saints before All Hallow's Eve and All Saints day.  Formed has a second children's video on St. Patrick in the Cathoilc Heroes of the Faith collection.  I like the linked Saints & Heroes collection video better for first graders becasue it has a lighter tone.  First graders are at the very lower end of recommended age for the other videos.
 [2 Nov 2020](Lesson7.md)   | [7](Lesson7.md)       | 7 & 8 | Moses | - | *Prince of Egypt* movie (DVD from library, streaming services) or [6-minute video](https://www.youtube.com/watch?v=rzcYLCYItuc) | Despite John the Baptist being in Chapter 8, we wait to cover him until January.
-9 Nov 2020   | 8       | 28 | David | - | - | May change.  I do want to keep chapters 9-12 on the dates where they are: these lessons are good for Christmas.
+9 Nov 2020   | Family 1st Night| - | - | - | - | No class and no lesson due to Berea Family First Night on Monday 9 November.
 16 Nov 2020  | 9       | 9  | The Annunciation
 23 Nov 2020  | Mass!   | -  |
 30 Nov 2020  | Day off | -  |
