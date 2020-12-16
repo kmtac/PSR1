@@ -3,7 +3,7 @@
 - Focus: Jesus is the Savior!  He was born in Bethlehem on Christmas.  
 - Stories: 
   - *The story of Christmas*, up to the Wise Men bringing gifts to the baby Jesus.
-    - Please cover this at least twice between now and Christmas.  In class, I usually show a video the first week of Advent and read the story from a children's Bible the second week.  In other years, 
+    - Please cover this at least twice between now and Christmas.  In class, I usually show a video the first week of Advent and read the story from a children's Bible the second week.  Some years, we also use a Nativity set to act out the story. 
         - Optional videos: 
            - Formed.org: [Brother Francis, Oh Holy Night](https://watch.formed.org/brother-francis-1/season:1/videos/o-holy-night-the-king-is-born-what-christmas-is-about)
            - Cuyahoga County Public Library: Bugtime Adventures *Joy to the World*
