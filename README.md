@@ -29,7 +29,7 @@ A summary of the 2020-2021 lesson plan is given in the table below.  As the week
 14 Dec 2020  | [11](Lesson10and11.md)      | 10 & 11 | St. Nicholas |- | On Formed.org: [Nicholas: The boy who became Santa](https://watch.formed.org/videos/nicholas-the-boy-who-became-santa) 
 21 Dec 2020  | Vacation| - |
 28 Dec 2020  | Vacation| - |
-4 Jan 2021   | 12      | 11 & 12 | The wise men, the finding of Jesus in the Temple
+4 Jan 2021   | [12](Lesson12.md)| 11 & 12 | The wise men, the finding of Jesus in the Temple|[Adoration of the magi](http://shcathedral.org/adoration-of-the-magi/) and [Jesus returning from the temple with Mary and Joseph](http://www.wikiart.org/en/rembrandt/christ-returning-from-the-temple-with-his-parents-1654) | [Three wise men video, 2.5-min](https://www.youtube.com/watch?v=NWk8WCOdnV4) and [Finding of Jesus in the Temple video](https://youtu.be/j2vH6h8JR4k) | Main points: Review the Christmas story.  Do something fun to celebrate Epiphany!  Discuss how Jesus grew up in a family.
 11 Jan 2021  | 13      | 13 | Jesus' Baptism, the calling of the Apostles
 18 Jan 2021  | MLK Day | - |
 25 Jan 2021  | 14      | 14 | Multiplication of the loaves
