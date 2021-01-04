@@ -2,7 +2,7 @@
 ## Summary
 - Focus: The wise men come to visit Jesus.  Jesus grows up in a family.
 - Stories:  Please share these with your child, using Bible story books, the Bible itself, your own words, or videos: 
-  - Epiphany: The Wise Men bring gifts to the baby Jesus.  [Optional video](https://www.youtube.com/watch?v=NWk8WCOdnV4) and [optional painting](https://i0.wp.com/shcathedral.org/wp-content/uploads/2013/01/epiphany2.jpg?fit=370%2C244&ssl=1).  
+  - Epiphany: The Wise Men bring gifts to the baby Jesus.  [Optional video](https://www.youtube.com/watch?v=NWk8WCOdnV4) and [optional painting](https://en.wikipedia.org/wiki/Adoration_of_the_Magi#/media/File:Vel%C3%A1zquez_-_Adoraci%C3%B3n_de_los_Reyes_(Museo_del_Prado,_1619).jpg).  
   - Optional: The flight into Egypt.
   - The finding of Jesus in the temple.  [Optional video of the finding in the temple](https://youtu.be/j2vH6h8JR4k) and [optional picture showing the Holy Family returning to Nazareth](http://www.wikiart.org/en/rembrandt/christ-returning-from-the-temple-with-his-parents-1654)
 - Book chapters: 11 (review from last class) and 12.  Please read chapter 12.
