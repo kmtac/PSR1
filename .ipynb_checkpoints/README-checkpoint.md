@@ -40,12 +40,12 @@ A summary of the 2020-2021 lesson plan is given in the table below.  As the week
 1 Mar 2021   | Mass!   |
 8 Mar 2021   | 17      | 17 & 25, 18 | Jesus' entry into Jerusalem
 15 Mar 2021  | Day off  | -
-22 Mar 2021  | 18      | 18 | The last supper
-29 Mar 2021  | 19      | 19 | Passion/Easter
-5 Apr 2021   | Day off (Easter) | -
-12 Apr 2021  | 20      | 19 | Easter/Ascension
-19 Apr 2021  | 21      | 20 & 21 | Ascension
-26 Apr 2021  | 22      | 22 & 23 | Pentecost
-3 May 2021  | 23      | 24
-10 May 2021  | 24      | 26
-17 May 2021  | Mass!   | -
+22 Mar 2021  | 18      | 18 | The last supper | - | [The last supper (short)](https://youtu.be/KywnAfLnOxw) and/or [Longer: The Bread of Life with Brother Francis on Formed.org](https://watch.formed.org/brother-francis-1/season:1/videos/the-bread-of-life-celebrating-the-eucharist)
+29 Mar 2021  | 19      | 19 | Passion/Easter || - | [Passion and Easter, 3 short videos](https://www.youtube.com/watch?v=xhGE5CPLFlo) and/or [Longer: He is Risen with Brother Francis on Formed.org](https://watch.formed.org/brother-francis-1/season:1/videos/he-is-risen-the-power-of-the-resurrection) 
+5 Apr 2021   | Day off (Easter) | - |
+12 Apr 2021  | 20        |     Called to protect
+19 Apr 2021  | 21      | 19 | Easter and St. Francis of Assisi | - | [Francis: The Knight of Assisi on Formed.org](https://watch.formed.org/the-saints-and-heroes-collection/season:1/videos/francis-the-knight-of-assisihttps://watch.formed.org/the-saints-and-heroes-collection/season:1/videos/francis-the-knight-of-assisi)
+26 Apr 2021  | 22      | 20 & 21 | Ascension and the Founding of the Church | - | [Ascension explained by Lego](https://www.youtube.com/watch?v=nnRJa4cZQIE)
+3 May 2021  | 23      | 22 & 23 | Pentecost, The Holy Trinity | - | [Pentecost explained with Lego](https://www.youtube.com/watch?v=Xvy-_Dayaoc)
+10 May 2021  | 24      | 24 | Baptism | - | [Brother Francis: The Miracle of Baptism on Formed.org](https://watch.formed.org/brother-francis-1/season:1/videos/born-into-the-kingdom-the-miracle-of-baptism)
+17 May 2021  | Mass!   | 
