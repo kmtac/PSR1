@@ -19,7 +19,7 @@
 - Optional: Do one of the "Continuing Activities" below
 
 ### <a name="ContinuingActivities"> Continuing activities for Developing a relationship with God </a>
-- Discuss how to care for your boday and how to care for your soul.
+- Discuss how to care for your body and how to care for your soul.
 - Have your child list/discuss things they'd like to thank God for.  Some ideas:
     - Take a walk and notice things to thank God for
     - Prayers at meals, bedtime, morning, ...
