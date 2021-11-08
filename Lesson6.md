@@ -1,8 +1,10 @@
 # Lesson 6
-- Story: [St. Patrick, Saints and Heroes collection on Formed.org, about 25 min.](https://watch.formed.org/the-saints-and-heroes-collection/season:1/videos/patrick-brave-shepherd-of-the-emerald-isle) 
-- Focus: Saints (optional video) [Halloween/All Saints Day explained with a cheesy Lego animation, about 6 min](https://www.youtube.com/watch?v=Oy66_pgeORA)
-- Book chapter: 27
-- Activity book pages: None this week
+- Story: [Joseph, his brothers, and the great famine](https://watch.formed.org/joseph-beloved-son-rejected-slave)
+   - This story is optional.  
+   - The Formed.org video is very long, about 90 minutes.  Reading the story from a children's Bible is a shorter option.
+- Book chapters: 5 and 6
+- Activity book pages: 17-24
+  - Pages 18, 21, 23, and 24 are the key pages
 - Prayers:
   - The Sign of the Cross
      - Note you make a cross with your arm
@@ -21,18 +23,29 @@
     - The children take a minute or two in the classroom to decide what to say to Jesue before visiting Him in the chapel.
   
 ## Homeschool/missed class plan
-- Discuss saints before All Hallow's Eve and All Saints day.
-- Read, watch, or tell: The story of St. Patrick or another saint.  [St. Patrick, Saints and Heroes collection on Formed.org, about 25 min.](https://watch.formed.org/the-saints-and-heroes-collection/season:1/videos/patrick-brave-shepherd-of-the-emerald-isle)    
-  - Formed has a second children's video on St. Patrick in the Cathoilc Heroes of the Faith collection.  I like the linked Saints & Heroes collection video better for first graders becasue it has a lighter tone.  First graders are at the very lower end of recommended age for the other videos. 
-  - The Saints and Heroes collection on Formed.org is generally good and includes several other saints, including St. Francis of Assisi, St. Bernadette, and the Fatima children.  All the ones I've seen are good.
-- Read: Chapter 27
-- Practice and Pray: The Sign of the Cross, the Our Father, and genuflecting.
+- Read, watch, or tell: The story of Joseph.  If you choose to watch, here's a [link to a 90-minute video](https://watch.formed.org/joseph-beloved-son-rejected-slave)
+- Read: Chapter 5/6
+- Key vocabulary: Grace: God's life in your soul.  (See focus 2 below.)
+- Key concept: In the beginning, Adam and Eve had grace, God's life in their souls.  They lost it by doing what God had told them not to do (eating the fruit from the forbidden tree, the tree of the knowledge of good and evil).  Jesus came so that we can have life in our souls again.  (See focus 2 below) 
+- Practice and Pray: The Sign of the Cross, the Our Father, and genuflecting
   - Our Father: 
+      - Review the first phrase: "Our Father"  (God is everyone's Father)
+      - Go over the second phrase: "Who art in Heaven": Discuss heaven.
+      - Go over the third phrase: "Hallowed be thy name"
+        - "Thy" is another way of saying "your."
+        - God's name is holy.  Holy is not really a first-grader-friendly concept.  
+          - I teach them the words -- "Hallowed by thy name" means "God's name is holy."  
+          - I also teach them that we always say God's name in a nice way.  
   - Practice genuflecting.  
 - Developing a relationship with God:
-  - Focus 1: Jesus wants us to follow Him.
-  - Focus 2: Saints are people who followed Jesus.  They give us examples of following Jesus.  
-  - Prayer: Continue to practice prayers and to encourage your children to also pray in their own words.
+  - Focus 1: Review the story of creation, the fall, and how God promised to send us a savior.
+    - Discussion or activity book pages 18 and 21.
+    - Activity book pages 17, 19, and 22 are also relevant, but they are optional.  They require substantial adult help unless your chiled is a very good reader.  (In class, I tend to cover this type of material with games instead of workbooks.)
+  - Focus 2: Vocabulary - Grace: Grace is the life of God in our souls.  Adam and Eve had grace but lost it for themselves and everyone else by eating the fruit God asked them not to eat.  Jesus came to save us and won back grace for everyone.  
+    - Introduce grace as a vocabulary word.
+    - Discuss or do activity book p. 20, 23, and 24.
+  - Prayer.  One idea - Have your child think about what they might like to say to Jesus.  Then, visit Jesus in a chapel or pray before a statue or picture of Jesus.
+    - In class, I suggest to the children tell Jesus something that they're happy about, or sad about, or worried about, or something they're grateful for, or just something that happened.
   - Continue to notice things to thank God for.  This is a continuing theme for this semester.  
   - Continue to discuss how to care for your body and care for your soul.  This is another major theme for this semester.
   - Optional.  Do one of the [Continuing Activities](#ContinuingActivities) below. 

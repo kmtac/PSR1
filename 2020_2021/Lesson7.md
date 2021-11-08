@@ -4,7 +4,6 @@
   - Short option: [Moses, 6 min](https://www.youtube.com/watch?v=rzcYLCYItuc)
   - In class, we watch *The Greatest Adventures: Moses* episode (30 minutes, available on VHS from Religious Ed library)
   - Reading the story is also fine.
-- Optional video: [Halloween/All Saints Day explained with a cheesy Lego animation, about 6 min](https://www.youtube.com/watch?v=Oy66_pgeORA)
 - Focus: Waiting for a savior
 - Book chapters: 7 and 8
 - Activity book pages: 25, 26, 30, 31 (p. 25 and 26 were also listed in previous weeks)
@@ -19,7 +18,6 @@
            - "Holy" is not generally in first graders' vocabulary and is a hard concept to explain to first graders.
         - Because God's name is holy, we say it in a nice way.
           - They *do* understand "say it in a nice way."
-        - Hallow: All Hallow's Eve, All Hallow's Day (All Saints Day)
   
 ## Homeschool/missed class plan
 - Read, watch, or tell: The story of Moses (see above). 

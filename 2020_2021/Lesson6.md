@@ -1,6 +1,6 @@
-# Lesson 5
+# Lesson 6
 - Story: [St. Patrick, Saints and Heroes collection on Formed.org, about 25 min.](https://watch.formed.org/the-saints-and-heroes-collection/season:1/videos/patrick-brave-shepherd-of-the-emerald-isle) 
-- Focus: Saints 
+- Focus: Saints (optional video) [Halloween/All Saints Day explained with a cheesy Lego animation, about 6 min](https://www.youtube.com/watch?v=Oy66_pgeORA)
 - Book chapter: 27
 - Activity book pages: None this week
 - Prayers:
@@ -21,14 +21,11 @@
     - The children take a minute or two in the classroom to decide what to say to Jesue before visiting Him in the chapel.
   
 ## Homeschool/missed class plan
+- Discuss saints before All Hallow's Eve and All Saints day.
 - Read, watch, or tell: The story of St. Patrick or another saint.  [St. Patrick, Saints and Heroes collection on Formed.org, about 25 min.](https://watch.formed.org/the-saints-and-heroes-collection/season:1/videos/patrick-brave-shepherd-of-the-emerald-isle)    
   - Formed has a second children's video on St. Patrick in the Cathoilc Heroes of the Faith collection.  I like the linked Saints & Heroes collection video better for first graders becasue it has a lighter tone.  First graders are at the very lower end of recommended age for the other videos. 
   - The Saints and Heroes collection on Formed.org is generally good and includes several other saints, including St. Francis of Assisi, St. Bernadette, and the Fatima children.  All the ones I've seen are good.
-- Discuss the Trinity.  Look carefully at the picture on p. 90.  Identify the Father, Son, and Holy Spirit in the picture.  Also identify Mary and St. Joseph.  Emphasize that Jesus is the Son.  
-- Read: Chapter 23.
-  - Activities: 
-     - Find a few 3-leaf clovers in the grass.  Relate this to how St. Patrick taught the Irish about the Trinity.
-     - Either color in and discuss p. 89 in the workbook OR make a 3-stranded braid with cord, yarn, or pipe cleaners.
+- Read: Chapter 27
 - Practice and Pray: The Sign of the Cross, the Our Father, and genuflecting.
   - Our Father: 
   - Practice genuflecting.  

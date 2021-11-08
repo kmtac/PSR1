@@ -44,16 +44,14 @@
   - We are made in the image and likeness of God.
 - Point 2: God wants us to know, love, and serve him so that we may be with Him in heaven.
   - God wants us to take care of our body and take care of our soul.
-  - Option 1: List ways to care for our body.  Then list ways to care for our souls.
-  - Option 2: Life-size board game: Set up a long, winding train of chairs or other convenient markers.  Take turners rolling a die to go forward from "Start" to "Home".  Before each roll of the die, ask your child "What's something you can do that's good for your body?" (eat, sleep, brush teeth, play, exercise, ...) or "What's something you can do that's good for your soul?" (pray, go to church, share, be nice to others, say sorry, say that's ok, ...).  Help them to get a right answer.  For your turn, answer the same question.
-  - Option 3: Charades: Caring for our body and for our soul.
+  - Activity 1: List ways to care for our body.  Then list ways to care for our souls.
+  - Optional. Activity 2: Charades: Caring for our body and for our soul.
 - Point 3: God gave us guardian angels.
   - Look at the picture of Tobiah and the archangel Raphael (p.18 of book)
   - Discuss: When might you ask your guardian angel to help you follow God?
 - Point 4: God gave us senses so that we can experience and enjoy creation
   - Option 1: Do p. 13 of the activity book.
-  - Option 2: Draw on a piece of paper or a chalk
-  - Option 3: Make an "Enjoy creation" book
+  - Option 1: Make an "Enjoy creation" book
      - Use 1 sheet of plain paper or light-colored construction paper
         - Cut in half the long way (get two 4.25 x 11 pieces)
         - Fold each sheet in half.  Tape the edges or staple to make a book.

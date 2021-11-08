@@ -1,5 +1,4 @@
 # Lesson 9
-- Lesson 8 this year was skipped due to Berea Family First Night
 - Story: The Annunciation: In class, we read this story from a children's Bible.  A short version of this story is given on p. 34 of the Activity Book. 
 - Focus: The savior comes!  
 - Book chapters: 9
