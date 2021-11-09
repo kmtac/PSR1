@@ -1,6 +1,6 @@
 # Lesson 8
 - Story: The saints.  
-- Focus: Folllowing Jesus.  The saints are great examples!  They show many different ways to follow Jesus.
+- Focus: Following Jesus.  The saints are great examples!  They show many different ways to follow Jesus.
 - Book chapter: 27
 - Prayers.  Say at least twice this week:
   - The Sign of the Cross, genuflecting, talking to God in your own words, gratefulness
@@ -24,6 +24,6 @@
     - Take a walk and notice things to thank God for
     - Prayers at meals, bedtime, morning, ...
     - Play a game.  Before each turn, each player lists something they'd like to thank God for.  They get as much help as they need to come up with something.
- - Optional. Pick flowers and arrange them in a vase.  Put near a statue or picture of Jesus.  (Tends to be a fovorite activity in class.)
- - Optional. Make a short visit to Jesus in the tabernacle -- a couple minutes are fine.  I think even a few minute visit can really help your child develop a relationship with Jesus, but I realize that this may not be as easy for homeschool families.  Perhaps you might be able to do this occasionally, either now or after a coronavirus vaccine has been developed.  
-    - Near or in Berea, St. Adalbert has Eucharistic Adoration from 9:00 to 6:30pm Tuesdays.  St. Mary of the Falls has Eucharistic Adoration from 7-8pm Tuesdays.  (Based on my experience, St. Mary of the Falls is as good about masking as St. Mary, Berea: Everyone in the church is wearing a mask.  St. Adalbert, from my very limited pandemic experience, isn't as good: In the pandemic version of a "full" church, you might have one or two people not wearing masks.  But I wouldn't expect St. Adalbert to have many people before about 5pm on Tuesdays.) 
+- Pick flowers and arrange them in a vase.  Put near a statue or picture of Jesus.  (Tends to be a favorite activity in class.)
+- Make a short visit to Jesus in the tabernacle -- a couple minutes are fine.  I think even a few minute visit can really help your child develop a relationship with Jesus, but I realize that this may not be as easy for homeschool families.  Perhaps you might be able to do this occasionally, either now or after a coronavirus vaccine has been developed.  
+    - Near or in Berea, St. Adalbert has Eucharistic Adoration from 9:00 to 6:30pm Tuesdays.  St. Mary of the Falls has Eucharistic Adoration from 7-8pm Tuesdays.  
