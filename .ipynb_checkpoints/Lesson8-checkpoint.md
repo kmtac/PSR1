@@ -24,6 +24,6 @@
     - Take a walk and notice things to thank God for
     - Prayers at meals, bedtime, morning, ...
     - Play a game.  Before each turn, each player lists something they'd like to thank God for.  They get as much help as they need to come up with something.
-- Pick flowers and arrange them in a vase.  Put near a statue or picture of Jesus.  (Tends to be a fovorite activity in class.)
-- Make a short visit to Jesus in the tabernacle -- a couple minutes are fine.  I think even a few minute visit can really help your child develop a relationship with Jesus, but I realize that this may not be as easy for homeschool families.  Perhaps you might be able to do this occasionally, either now or after a coronavirus vaccine has been developed.  
+- Pick flowers and arrange them in a vase.  Put near a statue or picture of Jesus.  (Tends to be a favorite activity in class.)
+- Make a short visit to Jesus in the tabernacle -- a couple minutes are fine.  I think even a few minute visit can really help your child develop a relationship with Jesus, but I realize that this may not be as easy for homeschool families.  Perhaps you might be able to do this occasionally.  
     - Near or in Berea, St. Adalbert has Eucharistic Adoration from 9:00 to 6:30pm Tuesdays.  St. Mary of the Falls has Eucharistic Adoration from 7-8pm Tuesdays.  

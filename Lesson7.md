@@ -55,11 +55,9 @@
     - Prayers at meals, bedtime, morning, ...
     - Play a game.  Before each turn, each player lists something they'd like to thank God for.  They get as much help as they need to come up with something.
  - Optional. Pick flowers and arrange them in a vase.  Put near a statue or picture of Jesus.  (Tends to be a fovorite activity in class.)
- - Optional. Make a short visit to Jesus in the tabernacle -- a couple minutes are fine.  I think even a few minute visit can really help your child develop a relationship with Jesus, but I realize that this may not be as easy for homeschool families.  Perhaps you might be able to do this occasionally, either now or after a coronavirus vaccine has been developed.  
-    - Near or in Berea, St. Adalbert has Eucharistic Adoration from 9:00 to 6:30pm Tuesdays.  St. Mary of the Falls has Eucharistic Adoration from 7-8pm Tuesdays.  (Based on my experience, St. Mary of the Falls is as good about masking as St. Mary, Berea: Everyone in the church is wearing a mask.  St. Adalbert, from my very limited pandemic experience, isn't as good: In the pandemic version of a "full" church, you might have one or two people not wearing masks.  But I wouldn't expect St. Adalbert to have many people before about 5pm on Tuesdays.) 
-  
-
-
+ - Optional. Make a short visit to Jesus in the tabernacle -- a couple minutes are fine.  I think even a few minute visit can really help your child develop a relationship with Jesus, but I realize that this may not be as easy for homeschool families.  Perhaps you might be able to do this occasionally.  
+    - Near or in Berea, St. Adalbert has Eucharistic Adoration from 9:00 to 6:30pm Tuesdays.  St. Mary of the Falls has Eucharistic Adoration from 7-8pm Tuesdays.  
+    
 ## In-class plan  
 - Before announcements: Activity Book p. 24, then 23 (6:55)
 - Discuss waiting in general, then waiting for the Savior. (Noah, Abraham, Joseph, we'll heard about Moses today)
