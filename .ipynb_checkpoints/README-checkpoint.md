@@ -28,25 +28,25 @@ A summary of the 2021-2022 lesson plan is given in the table below.  As the week
 20 Dec 2021  | Vacation| - |
 27 Dec 2021  | Vacation| - |
 3 Jan 2022   | Vacation| - |
-10 Jan 2022  | 12      | 12 | Jesus grows up
+10 Jan 2022  | (off)      | 12 |
 17Jan 2022  | MLK Day | - |
-23 Jan 2022  | 13      | 13 | 
-31 Jan 2022   | 14  | 13| 
-7 Feb 2022   | 15      | 14 |
-14 Feb 2022  | 16 |  15 & 16 | 2-4 healing miracles |[Jesus heals a paralyzed man whose friends have lowered him through the roof, 2 min.](https://www.youtube.com/watch?v=hJn7BYAMPmM)
+23 Jan 2022  | (snowday)      | 12, 13 |  
+[31 Jan 2022](LessonJesusFamilyWork.md)   | [12](LessonJesusFamilyWork.md)  |12, 13| Jesus grows up in a family.  Jesus begins his work. | [The Finding of Jesus in the Temple (3min)](https://youtu.be/j2vH6h8JR4k) AND [Jesus call his first Apostles](https://youtu.be/EhYzgO3_6qI) 
+7 Feb 2022   | 13      | 14 | 
+14 Feb 2022  | 14 |  15 & 16 | 2-4 healing miracles |[Jesus heals a paralyzed man whose friends have lowered him through the roof, 2 min.](https://www.youtube.com/watch?v=hJn7BYAMPmM)
 21 Feb 2022  | President's Day      | 
-28 Feb 2022   | 17   | 17 & 25 | Passion & Resurrection (movie)
-7 Mar 2022   | 18      | 17 & 25, 18 | Jesus' entry into Jerusalem
+28 Feb 2022   | 15   | 17 & 25 | Passion & Resurrection (movie)
+7 Mar 2022   | 16      | 17 & 25, 18 | Jesus' entry into Jerusalem
 14 Mar 2022  | Day off  | -
-21 Mar 2022  | 19      | 18 | The last supper [The last supper (short)](https://youtu.be/KywnAfLnOxw) and/or [Longer: The Bread of Life with Brother Francis on Formed.org](https://watch.formed.org/brother-francis-1/season:1/videos/the-bread-of-life-celebrating-the-eucharist)
-28 Mar 2022  | 20      | 19 | Passion/Easter ||[Passion and Easter, 3 short videos](https://www.youtube.com/watch?v=xhGE5CPLFlo) and/or [Longer: He is Risen with Brother Francis on Formed.org](https://watch.formed.org/brother-francis-1/season:1/videos/he-is-risen-the-power-of-the-resurrection) 
+21 Mar 2022  | 17      | 18 | The last supper [The last supper (short)](https://youtu.be/KywnAfLnOxw) and/or [Longer: The Bread of Life with Brother Francis on Formed.org](https://watch.formed.org/brother-francis-1/season:1/videos/the-bread-of-life-celebrating-the-eucharist)
+28 Mar 2022  | 18      | 19 | Passion/Easter ||[Passion and Easter, 3 short videos](https://www.youtube.com/watch?v=xhGE5CPLFlo) and/or [Longer: He is Risen with Brother Francis on Formed.org](https://watch.formed.org/brother-francis-1/season:1/videos/he-is-risen-the-power-of-the-resurrection) 
 4 Apr 2022   | Day off (Easter) 
-11 Apr 2022  | 21 | 19 | Easter and St. Francis of Assisi | [Francis: The Knight of Assisi on Formed.org](https://watch.formed.org/the-saints-and-heroes-collection/season:1/videos/francis-the-knight-of-assisihttps://watch.formed.org/the-saints-and-heroes-collection/season:1/videos/francis-the-knight-of-assisi)    
-18 Apr 2022  | 22 | 20 & 21 | Ascension and the Founding of the Church | [Ascension explained by Lego](https://www.youtube.com/watch?v=nnRJa4cZQIE)
-25 Apr 2022  | 23      | 22| Pentecost| [Pentecost explained with Lego](https://www.youtube.com/watch?v=Xvy-_Dayaoc) 
-2 May 2022  | 24      | 28 |
-9 May 2022  | 25      | 24 | Baptism |  [Brother Francis: The Miracle of Baptism on Formed.org](https://watch.formed.org/brother-francis-1/season:1/videos/born-into-the-kingdom-the-miracle-of-baptism)
-16 May 2022  | 26  | 28|
+11 Apr 2022  | 19 | 19 | Easter and St. Francis of Assisi | [Francis: The Knight of Assisi on Formed.org](https://watch.formed.org/the-saints-and-heroes-collection/season:1/videos/francis-the-knight-of-assisihttps://watch.formed.org/the-saints-and-heroes-collection/season:1/videos/francis-the-knight-of-assisi)    
+18 Apr 2022  | 20 | 20 & 21 | Ascension and the Founding of the Church | [Ascension explained by Lego](https://www.youtube.com/watch?v=nnRJa4cZQIE)
+25 Apr 2022  | 21      | 22| Pentecost| [Pentecost explained with Lego](https://www.youtube.com/watch?v=Xvy-_Dayaoc) 
+2 May 2022  | 22      | 28 |
+9 May 2022[LessonBaptism.md]  | 23[LessonBaptism.md]      | 24 | Baptism |  [Brother Francis: The Miracle of Baptism, full showon Formed.org](https://watch.formed.org/brother-francis-1/season:1/videos/born-into-the-kingdom-the-miracle-of-baptism) OR [Short snippet from the show](https://youtu.be/M-gHPWg1SGs)
+16 May 2022  | 24  | 28|
 23 May 2022  | Mass! |
 
 # Background
